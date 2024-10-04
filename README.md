@@ -4,7 +4,7 @@ Welcome to my GitHub page! I'm Palash, currently pursuing a BBA in Management, w
 
 ## Connect with Me
 
-- LinkedIn Profile :  [linkedin.com/in/profile-palash](https://www.linkedin.com/in/palashh)
+- LinkedIn Profile :  [linkedin.com/in/profile-palash](https://www.linkedin.com/in/profile-palash)
 
 ## Certifications
 
